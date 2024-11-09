@@ -28,7 +28,7 @@ Sarkari result 2024 up police
 
 Exam Sarkari Result info
 
-sarkari result 10+2 latest job
+sarkari result 10+2 latest job.
 
 Uttar Pradesh is a very big state of India, where different types of government jobs keep coming out every month, then updates come related to it like exam date, exam result, exam admit card, answer key and other information. All the young candidates of Uttar Pradesh believe only on Sarkari Result that the information they will get on our website Sarkari Result will be correct and accurate.
 
